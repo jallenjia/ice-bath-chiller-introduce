@@ -1,7 +1,7 @@
 # icebathchiller.cc introduce
 Hey everyone!
 
-Hope you're all doing well and staying cool, both figuratively and literally! I wanted to pop in and chat about something that's been on my mind lately: ice baths. 🥶❄️
+Hope you're all doing well and staying cool, both figuratively and literally! I wanted to pop in and chat about something that's been on my mind lately: ice baths. 🥶[❄️](https://link.zhihu.com/?target=https%3A//icebathchiller.cc/)
 
 So, who here is into the whole ice bath craze? Maybe you've dabbled in it a bit, or perhaps you're a seasoned pro who swears by the icy plunge to kickstart your day. Either way, I'm curious to hear your thoughts and experiences!
 
